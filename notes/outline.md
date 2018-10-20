@@ -16,7 +16,6 @@ Brahe's Mars data (and the Rudolphine tables, later) proves Kepler right.
 
 Kepler's supernova
 Does the cosmos change?
-what are stars? 
 
 A solvable universe, w/r/t the marriage problem
 
@@ -54,9 +53,12 @@ how or by who it was created
 Monastic lunar landing
 
 Gödel's completeness theorem
+Hilbert's program finishes
 
 Platonic solids of higher graph genuses?
 
-The completion of all mathematical knowledge
+The completion of all mathematical knowledge -- connection to the end of time (revelations)?
+"And sware by him that liveth for ever and ever, who created heaven, and the things that therein are, and the earth, and the things that therein are, and the sea, and the things which are therein, that there should be time no longer:
+7 But in the days of the voice of the seventh angel, when he shall begin to sound, the mystery of God should be finished, as he hath declared to his servants the prophets"
 
 Speculation by the author about the thrill of an impure universe.
